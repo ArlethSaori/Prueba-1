@@ -1,6 +1,6 @@
 ## Prueba-1
 tarea 1. Crear repositorio
-# **Caifanes**.
+# **CAIFANES**.
 ![R-22002373-1657667786-4709](https://github.com/user-attachments/assets/31ee7c17-44e3-4f03-aac5-3bbac2b6748a)
 
 >Link music:
